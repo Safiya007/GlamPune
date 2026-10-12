@@ -1,2 +1,1 @@
-GlamPune!!
 LUXUARY SALON!!
